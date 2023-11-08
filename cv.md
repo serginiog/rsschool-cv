@@ -10,4 +10,4 @@ serginiog@gmail.com
 29-12-1975
 ### My work experience
 manager - 2002 - 2004  - "Ukrsotsbank"
-project manager - 2004 - 2022 - "Inter"
+project manager - 2004 - 2023 - "Inter"
